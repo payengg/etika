@@ -1,3 +1,3 @@
 # etika
 
-apayaa
+devvv
